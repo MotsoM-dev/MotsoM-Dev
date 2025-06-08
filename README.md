@@ -51,7 +51,7 @@ Check out some of my favorite works:
 ### 🔗 Connect With Me
 
 - 🌍 Portfolio: [yourportfolio.com](#)   
-- 💼 LinkedIn: [Motso on LinkedIn](#)
+- 💼 LinkedIn: [Motso on LinkedIn](https://www.linkedin.com/in/kgomotso-mathombo-a8b08736a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 
 ---
 
